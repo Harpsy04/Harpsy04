@@ -2,7 +2,7 @@
 - 👀 I’m interested in absolutely nothing to do with coding
 - 🌱 I’m currently learning how to knit
 - 💞️ I’m looking to collaborate on nothing u nerds
-- 📫 How to reach me @yarny_noodle on IG 
+- 📫 How to reach me (https://www.instagram.com/yarny_noodle/) 
 - ⚡ Fun fact: i like men
 
 <!---
