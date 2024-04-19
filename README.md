@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning how to knit
 - 💞️ I’m looking to collaborate on nothing u nerds
 - 📫 How to reach me @yarny_noodle on IG 
-- 😄 Pronouns: nick/her
 - ⚡ Fun fact: i like men
 
 <!---
